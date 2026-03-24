@@ -1,5 +1,3 @@
-# blockingnanz
-
 # How to Properly Block an Alpaca Wool Sweater
 
 ## A Professional Fiber Artist's Guide
